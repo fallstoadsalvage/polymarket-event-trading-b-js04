@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with top Polymarket Addon | custom-strategies + API-integration, the #1 addon. Includes custom-strategies and API-integration for a smoother and
 
 
 
